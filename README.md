@@ -4,7 +4,7 @@
 
 * 💼 any freelance work? do reach, [email](mailto:minhazur.rahaman66@gmail.com) :)
 * 💬 ask me about anything, i am happy to help;
-* ⚡ Love to do: Blogging, Travelling, Playing.
+* ⚡ Love to do: Blogging, Travelling, Playing & obviously problem solving.
 * 🌱 I’m currently learning C++ & Web Development.
 * 📫 How to reach me: [mohammad-minhazur-rahaman](https://www.linkedin.com/in/mohammad-minhazur-rahaman/)
   
